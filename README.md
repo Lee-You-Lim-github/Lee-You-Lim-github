@@ -1,6 +1,6 @@
 # 이유림
 
-![](https://github.com/Lee-You-Lim-github/Lee-You-Lim-github/raw/main/assets/IMG_6714.JPG)
+![](https://github.com/Lee-You-Lim-github/Lee-You-Lim-github/raw/main/assets/IMG_6659.JPG)
 
 ## 열심히 익히는 중
 
